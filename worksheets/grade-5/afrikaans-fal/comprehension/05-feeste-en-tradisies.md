@@ -11,9 +11,9 @@
 
 ---
 
-### 🎉 Heritagdag: 'n Fees vir Almal
+### 🎉 Erfenisdag: 'n Fees vir Almal
 
-Elke jaar op 24 September vier Suid-Afrikaners Heritage Day, ook bekend as *Braai Day*. Dit is 'n dag waarop mense hulle kulturele erfenis vier en trots is op wie hulle is en waar hulle vandaan kom.
+Elke jaar op 24 September vier Suid-Afrikaners Erfenisdag, ook bekend as *Braai Day*. Dit is 'n dag waarop mense hulle kulturele erfenis vier en trots is op wie hulle is en waar hulle vandaan kom.
 
 By die plaaslike skool het die onderwysers 'n spesiale dag gereël. Elke klas moes 'n tafel opstel met kos, klere, of voorwerpe wat hul kultuur verteenwoordig. Die gang het gewemel van kleur: Zuloe-krale, Kaapse Maleier-kosse, San-tekeninge, Sotho-komberse, en nog baie meer.
 
@@ -33,7 +33,7 @@ Aan die einde van die dag het almal saam by lang tafels gesit, kos gedeel, en ve
 
 *Beantwoord in volledige sinne. / Answer in complete sentences.*
 
-1. Op watter datum word Heritage Day gevier?
+1. Op watter datum word Erfenisdag gevier?
 
    _______________________________________________
 
@@ -53,7 +53,7 @@ Aan die einde van die dag het almal saam by lang tafels gesit, kos gedeel, en ve
 
 ### A2 – Afleidingsvrae (Inferential Questions)
 
-5. Hoekom dink jy is Heritage Day 'n belangrike dag vir Suid-Afrikaners?
+5. Hoekom dink jy is Erfenisdag 'n belangrike dag vir Suid-Afrikaners?
 
    _______________________________________________
    _______________________________________________
@@ -114,7 +114,7 @@ Aan die einde van die dag het almal saam by lang tafels gesit, kos gedeel, en ve
 
 **A1 – Letterlike Vrae**
 
-1. Heritage Day word op 24 September gevier.
+1. Erfenisdag word op 24 September gevier.
 2. Elke klas moes 'n tafel opstel met kos, klere, of voorwerpe wat hul kultuur verteenwoordig.
 3. Naledi het haar ma se tradisionele *morogo* (wilde groente) gebring.
 4. Suid-Afrika het elf amptelike tale.
@@ -127,7 +127,7 @@ Aan die einde van die dag het almal saam by lang tafels gesit, kos gedeel, en ve
 
 **A3 – Opskrif en Struktuur**
 
-8. *Heritagdag: 'n Fees vir Almal*
+8. *Erfenisdag: 'n Fees vir Almal*
 9. Aanvaarbare redes: alle leerders (van verskillende kulture) het deelgeneem; almal het saamgesit en kos gedeel; dit gaan oor eenheid en insluiting.
 
 **A4 – Soek die Woord**
