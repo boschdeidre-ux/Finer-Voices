@@ -15,7 +15,7 @@
 
 Elke jaar op 24 September vier Suid-Afrikaners Erfenisdag, ook bekend as *Braai Day*. Dit is 'n dag waarop mense hulle kulturele erfenis vier en trots is op wie hulle is en waar hulle vandaan kom.
 
-By die plaaslike skool het die onderwysers 'n spesiale dag gereël. Elke klas moes 'n tafel opstel met kos, klere, of voorwerpe wat hul kultuur verteenwoordig. Die gang het gewemel van kleur: Zuloe-krale, Kaapse Maleier-kosse, San-tekeninge, Sotho-komberse, en nog baie meer.
+By die plaaslike skool het die onderwysers 'n spesiale dag gereël. Elke klas moes 'n tafel opstel met kos, klere, of voorwerpe wat hul kultuur verteenwoordig. Die gang het gewemel van kleur: Zoeloe-krale, Kaapse Maleier-kosse, San-tekeninge, Sotho-komberse, en nog baie meer.
 
 Naledi het haar ma se tradisionele *morogo* (wilde groente) gebring, en haar ouma se storie vertel van hoe vroue in haar dorp altyd saam kook as die oes ingebring word.
 
